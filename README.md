@@ -1,1 +1,0 @@
-# TanyaSt-Photography
